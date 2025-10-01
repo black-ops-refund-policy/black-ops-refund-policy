@@ -26,4 +26,6 @@ Conclusion
 
 Educate yourself on refund procedures to protect your funds while using Black Ops marketplaces.
 
-Update:  18.09.2025
+
+
+Update:  01 October The previously broken link has been restored.
