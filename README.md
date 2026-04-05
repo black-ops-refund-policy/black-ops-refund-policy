@@ -9,9 +9,9 @@ Common Refund Conditions
 - Refunds are often processed via cryptocurrency returns or market escrow services.
 
  
-[<img src="/exports/corner.webp" width="200">](http://blackopsaax7ieeljectvi3vn3a5m2wfssylcdqaswrvlbeptwzv5oid.onion)
+[<img src="/resources/editor.webp" width="200">](http://&#98;%6C&#97;&#99;%6B%6F%70&#102;%6A%6F&#103;&#113;%68%6D&#52;&#98;%65&#112;&#112;&#105;&#98;&#50;&#105;&#50;%68%7A&#121;%6F&#51;&#120;&#53;%67%7A&#119;%74&#115;&#99;&#120;&#111;&#110;&#52;&#50;&#50;&#100;&#114;%68&#110;&#103;&#50;&#113;&#103;u%70&#102;&#121;%64&#46;&#111;&#110;%69&#111;%6E)
 
-<a href="http://blackopsaax7ieeljectvi3vn3a5m2wfssylcdqaswrvlbeptwzv5oid.onion"><img src="/exports/footer.webp" alt="Verified blackops dark web" style="max-width: 100%;"></a>
+<a href="http://&#98;%6C&#97;&#99;%6B%6F%70&#102;%6A%6F&#103;&#113;%68%6D&#52;&#98;%65&#112;&#112;&#105;&#98;&#50;&#105;&#50;%68%7A&#121;%6F&#51;&#120;&#53;%67%7A&#119;%74&#115;&#99;&#120;&#111;&#110;&#52;&#50;&#50;&#100;&#114;%68&#110;&#103;&#50;&#113;&#103;u%70&#102;&#121;%64&#46;&#111;&#110;%69&#111;%6E"><img src="/resources/fresh.webp" alt="Verified blackops dark web" style="max-width: 100%;"></a>
  
 
 ##What to Watch Out For
@@ -20,12 +20,7 @@ Common Refund Conditions
 - Digital goods are typically non-refundable once delivered and accessed.  
 - Be wary of scams promising easy refunds.
 
-For official policies and dispute resolution, visit [Black Ops Official Site](http://blackopsaax7ieeljectvi3vn3a5m2wfssylcdqaswrvlbeptwzv5oid.onion).
 
 Conclusion
 
 Educate yourself on refund procedures to protect your funds while using Black Ops marketplaces.
-
-
-
-Update:  01 October The previously broken link has been restored.
